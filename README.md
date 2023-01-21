@@ -1,0 +1,1 @@
+# StarPattern-Asterik-Kanan
